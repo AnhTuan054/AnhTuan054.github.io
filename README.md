@@ -1,5 +1,5 @@
 # AnhTuan054.github.io
-![Avatar](profile.png)
+![Avatar](meoww.jpg)
 
 # 👋 Hi, mình là Võ Anh Tuấn!
 
